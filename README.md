@@ -3,5 +3,4 @@ Stop saying you cracked this 🤓 we all know you cant code for shit. Victory re
 Sorry victory if you didn't want me releasing this, after all you did delete it. I had to clear this up because people were getting their asses scammed!
 
 # Socials
-$ky#6354 (1000202087633797171)
-https://discord.gg/shikaru
+$ky#6354 (1000202087633797171) | https://discord.gg/shikaru | https://shikaru.gq/ | https://reversesxvm.com/
